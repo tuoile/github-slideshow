@@ -17,6 +17,10 @@
 
 **helo the world, I am coming**
 
+>derelict house
+
+>derelict areas
+
 
 
 
